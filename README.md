@@ -1,1 +1,1 @@
-# LighDY.github.io
+# LightDY.github.io
